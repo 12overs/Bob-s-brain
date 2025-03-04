@@ -14,3 +14,6 @@
 - Smoked Calabrian chili flakes as a staple ingredient.
 - Developing a Tom Yum Risotto for crossover dinner.
 
+## Career long term projects
+- Have Bob keep a pulse on internet buzz for Detroits food scene, specific to Shewolf, Isolina, and me
+- Have Bob keep an eye out for food summits, ted x talks, or any other gathering of minds that I might find useful in my career as a chef/manager 
